@@ -1,0 +1,1 @@
+# Ekonometrik_Gostergelerin_Analizi
